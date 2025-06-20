@@ -27,4 +27,4 @@ Open to collaboration, freelance automation builds, or just tech chats.
 
 ---
 
-> “Code is the bridge between imagination and execution.”
+>Code is the bridge between imagination and execution.
