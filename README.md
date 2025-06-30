@@ -160,9 +160,9 @@ Whether you need **small scripts** or **large systems**, I provide:
 
 ## 🌐 Connect with Me
 
-📨 **Email:** abusinan1523@gmail.com  
-🔗 **Upwork:** [https://www.upwork.com/freelancers/abusinan](https://www.upwork.com/freelancers/abusinan)  
-🔗 **LinkedIn:** [https://www.linkedin.com/in/abu-sinan](https://www.linkedin.com/in/abusinan)
+📨 [**Email**](abusinan1523@gmail.com)  
+🔗 [**Upwork**](https://www.upwork.com/freelancers/abusinan)  
+🔗 [**LinkedIn**](https://www.linkedin.com/in/abusinan)
 
 ---
 
